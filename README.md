@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... challenging projects that will come up in the future.
 - 📫 How to reach me ... through slack/discord or email.
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... Beat Elden Ring in 80 hours!
 
 <!---
 NakaylaRSHart/NakaylaRSHart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
